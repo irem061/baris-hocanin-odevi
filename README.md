@@ -1,1 +1,1 @@
-# bar-hoca-dev
+# baris hocanin odevi
